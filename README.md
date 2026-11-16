@@ -1,0 +1,1 @@
+# termos_servico_spectune
